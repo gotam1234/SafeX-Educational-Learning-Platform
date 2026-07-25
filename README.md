@@ -1,1 +1,0 @@
-# SafeX-Educational-Learning-Platform
